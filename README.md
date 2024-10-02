@@ -9,7 +9,7 @@
 
 ## Feito por:
 
-### Francisco Lucas 
+### Francisco Lucas Lopes Araujo
 
 ### Link para meu Portifolio
 
